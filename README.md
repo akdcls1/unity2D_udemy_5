@@ -9,3 +9,5 @@ And D-Day
 Happy New Year~
 
 umm
+
+열심히 해야지...
